@@ -1,20 +1,20 @@
-# Prerak Bhavsar – Legal Assistant Portfolio
+# Prerak Bhavsar – Legal Counsel Portfolio
 
-**📍 Toronto, ON**  
-📧 prerakbhavsar94@gmail.com | 📞 289-991-2710  
+**📍 Mumbai, MH**  
+📧 prerakbhavsar94@gmail.com | 📞 + 91 9619352737  
 [🔗 LinkedIn Profile](https://www.linkedin.com/in/prerakbhavsar)  
 
 ---
 
 ## 🧾 Professional Summary
 
-Detail-oriented **Legal Assistant** with 4+ years of progressive experience across **immigration**, **litigation**, and **small claims** law. Known for independently managing case files, drafting legal documents, and ensuring compliance with court deadlines in high-volume environments. Tech-savvy and proficient in **iManage**, **ACL**, and **Justice Services Online**.
+Legally trained professional with over 4+ years of experience in compliance, cross-border immigration law, and contract management. Skilled in drafting and negotiating client agreement, developing legal documentation systems, and supporting internal stakeholders through legal insights. Adept at interpreting legislation, understanding compliance frameworks, and delivering business-focused legal solutions. Known for improving process efficiency, maintaining accuracy under pressure, and aligning legal operations with organizational strategy.
 
 ---
 
 ## 🏛️ Experience
 
-### Vialto Partners LLP | Immigration Law Specialist  
+### Vialto Partners LLP | Associate II  
 **Toronto, ON** | *Dec 2022 – Jun 2024*
 
 - Managed **100+ cross-border immigration cases**, coordinating between clients, legal counsel, and government agencies.
@@ -40,8 +40,8 @@ Detail-oriented **Legal Assistant** with 4+ years of progressive experience acro
 
 ## 🛠️ Skills
 
-- **Legal Software**: iManage, ACL, JSO, MS Office, Adobe Acrobat, MS Office  
-- **Core Skills**: Legal Drafting, Civil Procedure, Litigation Support, Immigration Law  
+- **Legal Software**: iManage, ACL, MS Office, Adobe Acrobat, MS Office  
+- **Core Skills**: Legal Drafting, Civil Procedure, Litigation Support, Compliance & Immigration Law  
 - **Soft Skills**: Time Management, Attention to Detail, Client-Focused Service  
 
 ---
@@ -69,7 +69,7 @@ Detail-oriented **Legal Assistant** with 4+ years of progressive experience acro
 
 ## 📫 Let's Connect!
 
-Open to new opportunities in **legal administration**, **litigation support**, or **immigration case processing**.  
+Open to new opportunities in **legal counsel**, **legal advisor**, or **legal analyst**.  
 Message me on [LinkedIn](https://www.linkedin.com/in/prerakbhavsar) or email me at **prerakbhavsar94@gmail.com**.
 
 ---
