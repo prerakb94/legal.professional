@@ -8,11 +8,21 @@
 
 ## 🧾 Professional Summary
 
-Legally trained professional with over 4+ years of experience in compliance, cross-border immigration law, and contract management. Skilled in drafting and negotiating client agreement, developing legal documentation systems, and supporting internal stakeholders through legal insights. Adept at interpreting legislation, understanding compliance frameworks, and delivering business-focused legal solutions. Known for improving process efficiency, maintaining accuracy under pressure, and aligning legal operations with organizational strategy.
+I am a legally trained professional combining corporate law expertise with a strong foundation in financial analysis and legal operations. Currently serving as a Corporate Associate at Khaitan & Co, my practice focuses on general corporate advisory, transaction management, and strategic legal support.
+
+With over four years of cross-border experience navigating the legal landscapes of both India and Canada, I specialize in contract management, stakeholder advisory, and translating complex statutory frameworks into actionable business solutions. Backed by an LL.B., a Bachelor of Accounting & Finance, and a Paralegal Diploma, I bring a unique dual perspective to legal problem-solving. I am highly passionate about advancing modern contract strategies and leveraging legal technology, such as iManage and DocuSign, to streamline workflows and deliver exceptional, business-friendly service to clients.
 
 ---
 
 ## 🏛️ Experience
+
+### Khaitan & Co. | Corporate Associate  
+**Mumbai, MH** | *May 2026 – Present*
+
+- Assist in managing general corporate matters, supporting legal strategy, and facilitating corporate transactions for diverse clients.
+- Support the drafting, review, and negotiation of various commercial agreements, ensuring alignment with corporate governance and business objectives.
+- Contribute to the optimization of contract management and daily legal operations, leveraging technology to ensure efficient and accurate document handling.
+- Act as a reliable bridge between senior counsel, clients, and internal departments to ensure seamless communication and actionable legal guidance.
 
 ### Vialto Partners LLP | Associate II  
 **Toronto, ON** | *Dec 2022 – Jun 2024*
@@ -41,7 +51,7 @@ Legally trained professional with over 4+ years of experience in compliance, cro
 ## 🛠️ Skills
 
 - **Legal Software**: iManage, ACL, MS Office, Adobe Acrobat, MS Office  
-- **Core Skills**: Legal Drafting, Civil Procedure, Litigation Support, Compliance & Immigration Law  
+- **Core Skills**: Legal Contract Drafting, Civil Procedure, Corporate Transactions, Compliance & Immigration Law  
 - **Soft Skills**: Time Management, Attention to Detail, Client-Focused Service  
 
 ---
