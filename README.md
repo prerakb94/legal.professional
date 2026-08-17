@@ -10,7 +10,7 @@
 
 I am a dedicated legal professional and **Durham College Paralegal graduate** combining advanced legal administrative expertise with a strong foundation in financial analysis. With over four years of continuous experience navigating complex regulatory landscapes, my practice focuses on **Immigration & Corporate Compliance, dispute resolution support, and strategic legal operations.**
 
-I specialize in managing high-volume contract workflows, stakeholder advisory, and translating complex statutory frameworks into actionable compliance solutions. Backed by an LL.B., a Bachelor of Accounting & Finance, and a Paralegal Diploma, I bring a unique dual perspective to legal problem-solving and file administration. I am highly passionate about leveraging legal technology — such as **iManage, Clio, and DocuSign** — to streamline document automation, ensure procedural compliance, and deliver exceptional, seamless service to multidisciplinary legal teams and clients.
+I specialize in managing high-volume contract workflows, stakeholder advisory, and translating complex statutory frameworks into actionable compliance solutions. Backed by an LL.B., a Bachelor of Accounting & Finance, and a Paralegal Diploma, I bring a unique dual perspective to legal problem-solving and file administration. I am highly passionate about leveraging legal technology such as **iManage, Clio, and DocuSign** to streamline document automation, ensure procedural compliance, and deliver exceptional, seamless service to multidisciplinary legal teams and clients.
 
 ---
 
