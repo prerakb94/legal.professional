@@ -25,7 +25,7 @@ I specialize in managing high-volume contract workflows, stakeholder advisory, a
 - Act as a reliable **bridge between senior counsel, clients, and internal departments** to ensure seamless communication and actionable legal guidance.
 
 ### CKP Insurance | Litigation Associate – Dispute Resolution & Claims
-**Mumbai, IN** | *Jan 2024 – Apr 2026*
+**Mumbai, IN** | *Jan 2025 – Apr 2026*
 
 - Directed the **administration and file management** of a high-volume caseload exceeding **200 complex claims and dispute files.**
 - Drafted critical case materials, including **pleadings and affidavits**, ensuring strict adherence to procedural rules and formatting standards.
