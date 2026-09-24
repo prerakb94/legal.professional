@@ -17,7 +17,7 @@ I specialize in managing high-volume contract workflows, stakeholder advisory, a
 ## 🏛️ Experience
 
 ### Khaitan & Co. | Corporate Associate  
-**Mumbai, MH** | *May 2026 – Present*
+**Mumbai, MH** | *May 2026 – August 2026*
 
 - Assist in managing general **corporate matters, supporting legal strategy, and facilitating corporate transactions for diverse clients.**
 - Support the **drafting, review, and negotiation** of various commercial agreements, ensuring alignment with corporate governance and business objectives.
